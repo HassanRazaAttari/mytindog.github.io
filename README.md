@@ -1,1 +1,0 @@
-# mytindog.github.io
